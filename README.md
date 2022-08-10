@@ -1,0 +1,1 @@
+# Hakiyuu-altschool
